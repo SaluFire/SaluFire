@@ -13,3 +13,7 @@ Also I use sololearn for learning so...
 And you are probably better than programing than i am so respect yourself 
 
 P.S: Help me if i had made a mistake on my Syntaxes or My own sanity.
+P.S.S: 5 days later: since im a trashy dev im just learning java. so im gonna give my website here(wordpress) cuz why not? 
+aaghajani.yclass2.ir
+i think it would be safe unless someone break into it so...
+good luck, you are on your own.
